@@ -1,4 +1,6 @@
-<head><meta name="google-site-verification" content="SO4gIcM1afoq2nFQkxlZXU1Fu8JazmtRtzBiBTHt9CY" /></head></head>
+<head>
+  <meta name="google-site-verification" content="SO4gIcM1afoq2nFQkxlZXU1Fu8JazmtRtzBiBTHt9CY" />
+</head>
 
 ## Arbiquant Erfahrungen 2025 – Bewertungen: Betrug oder seriös?
 Wer hätte gedacht, dass die Währung, an der alle zweifelten, eines Tages die Welt beherrschen würde? Wer hätte gedacht, dass Kryptowährungen genauso akzeptiert werden würden wie Fiatgeld?
